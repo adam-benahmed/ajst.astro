@@ -2,5 +2,5 @@
 *Adam Ben Ahmed*
 
 
-> à propos d'astroà l'AJST
+> à propos d'astro à l'AJST...
 
